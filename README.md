@@ -5,7 +5,9 @@ my whole life, but it's a rather recent thing. Don't let that intimidate you, th
 y'all. It just feels right, y'know?
 
 Anyway, the stories and information posted here are artistic works of fiction and falsehood. Only a fool would take anything posted
-here as fact. With that in mind, here is my story.
+here as fact. Or, as my grandpa used to say, and is engraved upon his gravestone, "A story not embelished is a story not worth
+telling." See how easy it is for me to lie to you? That's not even what's engraved upon his gravestone. With that in mind, here is my
+story.
 
 I was born in 1989. Yes, I'm rather old. It takes time, y'know? Born in 1989, I was, in Cholula, Mexico. I don't really remember much
 of my childhood there. Really, the only thing I remember about my childhood in Cholula was riding my little bicicleta. One of those
